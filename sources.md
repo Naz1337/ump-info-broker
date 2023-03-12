@@ -5,3 +5,5 @@
    * [Facebook](https://www.facebook.com/akademiadabump?mibextid=LQQJ4d)
 3. Jabatan Hal Ehwal Pelajar & Alumni UMP
    * [Telegram](https://t.me/hepumpcare)
+4. UMP Library
+   * [Telegram](https://t.me/umplibrary)
